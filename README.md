@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @lightguard777
+- 👀 I’m interested in a bunch of stuff.
+- 🌱 I’m currently learning how to program a ti-84 plus ce
